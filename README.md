@@ -31,4 +31,4 @@ UI/UX design, web dev, and graphic design — Visual Voyage Studios 🚀
 
 ---
 
-📍 Rustenburg, South Africa &nbsp;•&nbsp; 📧 visualvoyaerbsn@gmail.com
+
